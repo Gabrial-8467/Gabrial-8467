@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m @Gabrial-Deora<br>👀 I’m interested in Web Development and Cybersecurity.<br>🌱 I’m currently pursuing B.Tech CSE and I am currently in 4th yr. .<br>📫 How to reach me :<br>you can reach me through my instagram profile @ gd_84672
+👋 Hi, I’m @Gabrial-Deora<br>👀 I’m interested in Web Development and Cybersecurity.<br>🌱 I’m currently pursuing B.Tech CSE and I am currently in 4th yr. .<br>📫 How to reach me :<br>you can reach me through my instagram profile @ gd_84672<br>
 I am making websites with the help ai in less time which makes me more creative and efficient than any other.
 
 
